@@ -43,7 +43,7 @@ Some of my featured projects include:
 ⸻
 
 📬 Contact
-	•	Email: youremail@example.com
+	•	Email: sahoosashisekhar839@gmail.com
 	•	GitHub: Your GitHub
 	•	LinkedIn: Your LinkedIn
 
